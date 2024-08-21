@@ -1,3 +1,3 @@
-# Hello world
+# bruh what do
 
-this is me trying out git
+im akshually confused asf
